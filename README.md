@@ -25,14 +25,3 @@ Iron man's alter-ego is **Tony Stark**, a billionaire who owns Stark Industries.
 5.**Master Businessman:** Being raised by investors and company owners, it's only natural that Tony would have skills as a businessman. His skill goes above and beyond, however, as he has actually lost and rebuilt his fortune in a matter of weeks. Multiple times.
 
 
----
-***WEAKNESSES:***
-
-*JARVIS,SOMETIMES YOU GOTTA RUN BEFORE YOU CAN WALK.*
-
-
-1.**Humanity:** When separated from his armor, Tony is just an athletic human with decent martial art skills. He can be killed with any conventional weapon when outside the suit.
-
-2.**Alcoholism:** Tony is a total drunk, and occasionally pilots a suit while intoxicated, lowering his efficiency. He can be easily pressed into excessively drinking in the right circumstances.
-
-3.**Recklessness:** While Tony is utterly brilliant, he tends to rush head first into battle and pushes his suits way past their limits, which often ends in disaster.
