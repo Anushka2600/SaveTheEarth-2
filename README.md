@@ -26,6 +26,18 @@ Iron man's alter-ego is **Tony Stark**, a billionaire who owns Stark Industries.
 
 
 ---
+***ALTERNATE FORMS:***
+
+*YOU KNOW, IT'S MOMENTS LIKE THESE WHEN I REALIZE WHAT A SUPERHERO I AM.*
+
+-Hulkbuster
+-Bleeding Edge
+-Endo-Sym
+-Stealth Armour
+-Model Prime
+
+
+---
 ***WEAKNESSES:***
 
 *JARVIS,SOMETIMES YOU GOTTA RUN BEFORE YOU CAN WALK.*
