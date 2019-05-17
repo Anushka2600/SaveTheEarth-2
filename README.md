@@ -18,10 +18,35 @@ Iron man's alter-ego is **Tony Stark**, a billionaire who owns Stark Industries.
 1.**Super-Genius Intellect:** Tony is easily one of Marvel's smartest humans. With his intellect, he has hacked technology centuries ahead of his time. His mind is said to be geared towards the future, giving him the ability to predict future events through intuition. He has demonstrated this with the events of Civil War, which he foresaw would occur years before it happened.
 
 2.**Master Engineer:** Engineering is Tony's forte. He is capable of building and repairing nearly anything his mind can dream up, such as his Iron Man suits.
+
 3.**Expert Tactician:** Tony has a knack for tactical warfare, being able to set enemies into complex, precarious traps that they cannot escape. Part of his skill comes from his supernatural ability to multitask, having the ability to pilot Iron Man suits effectively at once with no hindrance to his abilities.
 
 4.**Skilled Unarmed Fighter:** Being taught by the likes of Captain America and Black Panther, Tony has become rather proficient in hand-to-hand.
 
 5.**Master Businessman:** Being raised by investors and company owners, it's only natural that Tony would have skills as a businessman. His skill goes above and beyond, however, as he has actually lost and rebuilt his fortune in a matter of weeks. Multiple times.
 
+
+---
+***ALTERNATE FORMS:***
+
+*YOU KNOW, IT'S MOMENTS LIKE THESE WHEN I REALIZE WHAT A SUPERHERO I AM.*
+
+-Hulkbuster
+-Bleeding Edge
+-Endo-Sym
+-Stealth Armour
+-Model Prime
+
+
+---
+***WEAKNESSES:***
+
+*JARVIS,SOMETIMES YOU GOTTA RUN BEFORE YOU CAN WALK.*
+
+
+1.**Humanity:** When separated from his armor, Tony is just an athletic human with decent martial art skills. He can be killed with any conventional weapon when outside the suit.
+
+2.**Alcoholism:** Tony is a total drunk, and occasionally pilots a suit while intoxicated, lowering his efficiency. He can be easily pressed into excessively drinking in the right circumstances.
+
+3.**Recklessness:** While Tony is utterly brilliant, he tends to rush head first into battle and pushes his suits way past their limits, which often ends in disaster.
 
